@@ -12,6 +12,6 @@ We envision that this great network of Cocreative Intelligence will be the sourc
 
 
 To see the online fundraiser for this project:  https://gofund.me/442582a7
-To read more about the Community Healing Sanctuary Initiative: TheInfiniteProgram.org/conservation2.0
-To read more about the organization: TheInfiniteProgram.org
+To read more about the Community Healing Sanctuary Initiative: https://TheInfiniteProgram.org/conservation2.0
+To read more about the organization: https://TheInfiniteProgram.org
 To reach out and connect, ask questions etc: connect@theinfiniteprogram.org
